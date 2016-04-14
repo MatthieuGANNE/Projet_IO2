@@ -1,0 +1,7 @@
+# Projet_IO2
+IL FAUT ME LIRE PUTAIN
+
+
+
+
+LISEZ MOI
